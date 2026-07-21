@@ -21,7 +21,7 @@ This repository contains the **free interactive preview** so you can experience 
 
 Unlock all premium features here:
 
-**[https://YOUR-STORE-LINK](https://momentumstudio2026.sell.app/product/productive-pro-free-interactive-preview)**
+(https://momentumstudio2026.sell.app/product/productive-pro)
 
 ## 👨‍💻 About
 
